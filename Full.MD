@@ -1,3 +1,8 @@
+## 1. Dấu Thánh Giá
+Nhân danh Cha và Con và Thánh Thần. Amen.
+
+Lạy Chúa chúng con, vì dấu Thánh Giá X (dấu Thánh giá trên trán), xin chữa chúng con X (dấu Thánh giá trên môi), cho khỏi kẻ thù X (dấu Thánh giá trên ngực), nhân danh Cha và Con và Thánh Thần. Amen
+
 ## 2. Kinh Đức Chúa Thánh Thần
 Chúng con lạy ơn Đức Chúa Thánh Thần thiêng liêng sáng láng vô cùng. Chúng con xin Đức Chúa Thánh Thần xuống đầy lòng chúng con, là kẻ tin cậy Đức Chúa Trời, và đốt lửa kính mến Đức Chúa Trời trong lòng chúng con, chúng con xin Đức Chúa Trời cho Đức Chúa Thánh Thần xuống.
 
@@ -13,18 +18,24 @@ Tôi tin kính Đức Chúa Trời là Cha phép tắc vô cùng dựng
 
 ## 5. Kinh Cáo Mình
 Tôi thú nhận cùng Thiên Chúa toàn năng và cùng anh chị em. Tôi đã phạm tội nhiều trong tư tưởng, lời nói, việc làm và những điều thiếu sót: lỗi tại tôi, lỗi tại tôi, lỗi tại tôi mọi đàng. Vì vậy tôi xin Đức Bà Ma-ri-a trọn đời đồng trinh, các thiên thần, các thánh và anh chị em khẩn cầu cho tôi trước tòa Thiên Chúa, Chúa chúng ta. A-men
+
 ## 6. Kinh Lạy Cha
 Lạy Cha chúng con ở trên trời, chúng con nguyện danh Cha cả sáng, nước Cha trị đến, ý Cha thể hiện dưới đất cũng như trên trời. Xin Cha cho chúng con hôm nay lương thực hàng ngày và tha nợ chúng con như chúng con cũng tha kẻ có nợ chúng con. Xin chớ để chúng con sa chước cám dỗ, nhưng cứu chúng con cho khỏi sự dữ. A-men.
+
 ## 7. Kinh Kính Mừng
 Kính mừng Ma-ri-a đầy ơn phước, Đức Chúa Trời ở cùng Bà, Bà có phước lạ hơn mọi người nữ và Giê-su con lòng Bà gồm phước lạ.
 
 Thánh Ma-ri-a Đức Mẹ Chúa Trời, cầu cho chúng con là kẻ có tội khi này và trong giờ lâm tử. A-men.
+
 ## 8. Kinh Tin
 Lạy Chúa, con tin thật có một Đức Chúa Trời là Đấng thưởng phạt vô cùng. Con lại tin thật Đức Chúa Trời có Ba Ngôi, mà Ngôi thứ Hai đã xuống thế làm người, chịu nạn chịu chết mà chuộc tội cho thiên hạ. Bấy nhiêu điều ấy cùng các điều Hội Thánh dạy, thì con tin vững vàng vì Chúa là Đấng thông minh và chân thật vô cùng đã phán truyền cho Hội Thánh. A-men.
+
 ## 9. Kinh Cậy
 Lạy Chúa, con trông cậy vững vàng, vì công nghiệp Đức Chúa Giê-su, thì Chúa sẽ ban ơn cho con giữ đạo nên ở đời này, cho ngày sau được lên Thiên đàng, xem thấy mặt Đức Chúa Trời hưởng phúc đời đời, vì Chúa là Đấng phép tắc và lòng lành vô cùng đã phán hứa sự ấy, chẳng có lẽ nào sai được. A-men.
+
 ## 10. Kinh Mến
 Lạy Chúa, con kính mến Chúa hết lòng hết sức, trên hết mọi sự, vì Chúa là Đấng trọn tốt trọn lành vô cùng. Lại vì Chúa thì con thương yêu người ta như mình con vậy. A-men.
+
 ## 11. Mười Điều Răn
 Đạo Đức Chúa Trời có Mười Điều răn:
 
@@ -40,6 +51,7 @@ Thứ chín : Chớ muốn vợ chồng người.
 Thứ mười : Chớ tham của người.
 
 Mười Điều răn ấy tóm về hai điều này mà chớ: trước kính mến một Đức Chúa Trời trên hết mọi sự, sau là yêu người như mình ta vậy. A-men.
+
 ## 12. Sáu Điều Răn
 Hội Thánh có sáu điều răn:
 
@@ -49,6 +61,7 @@ Thứ ba : Xưng tội trong một năm ít là một lần,
 Thứ bốn : Chịu Mình Thánh Đức Chúa Giê-su trong mùa Phục sinh,
 Thứ năm : Giữ chay những ngày Hội Thánh buộc,
 Thứ sáu : Kiêng thịt ngày thứ sáu cùng các ngày khác Hội Thánh dạy.
+
 ## 13. Cải Tội Bảy Mối
 Cải tội bảy mối có bảy đức:
 
