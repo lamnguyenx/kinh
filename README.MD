@@ -65,13 +65,13 @@ Thứ sáu : Kiêng thịt ngày thứ sáu cùng các ngày khác Hô�
 ## 13. Cải Tội Bảy Mối
 Cải tội bảy mối có bảy đức:
 
-Thứ nhất : Khiêm nhường chớ kiêu ngạo.<br>
-Thứ hai : Rộng rãi chớ hà tiện.<br>
-Thứ ba : Giữ mình sạch sẽ chớ mê dâm dục.<br>
-Thứ bốn : Hay nhịn, chớ hờn giận.<br>
-Thứ năm : Kiêng bớt chớ mê ăn uống.<br>
-Thứ sáu : Yêu người chớ ghen ghét.<br>
-Thứ bảy : Siêng năng việc Đức Chúa Trời chớ làm biếng.<br>
+Thứ nhất : Khiêm nhường chớ kiêu ngạo. (1 giống dấu 😗☝️, bịt mồm lại)<br> 
+Thứ hai : Rộng rãi chớ hà tiện. (giang 2 tay ra, rộng rãi) <br>
+Thứ ba : Giữ mình sạch sẽ chớ mê dâm dục. (3 trong tg thứ 3)<br>
+Thứ bốn : Hay nhịn, chớ hờn giận.(bốn -> giống bàn tay làm hình giống x -> please stop)<br>
+Thứ năm : Kiêng bớt chớ mê ăn uống. (năm trong măm măm)<br>
+Thứ sáu : Yêu người chớ ghen ghét. (xấu --> ghet? không đc vậy)<br>
+Thứ bảy : Siêng năng việc Đức Chúa Trời chớ làm biếng. (ngày Chúa nghỉ -> siêng năng việc hộ Chúa, k đc biếng) <br>
 
 ## 14. Phúc Thật 8 Mối
 Phúc thật tám mối:
