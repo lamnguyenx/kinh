@@ -17,7 +17,7 @@ Lạy Chúa, Chúa là Đấng trọn tốt trọn lành vô cùng. Chú
 Tôi tin kính Đức Chúa Trời là Cha phép tắc vô cùng dựng nên trời đất. Tôi tin kính Đức Chúa Giê-su Ki-tô là Con một Đức Chúa Cha cùng là Chúa chúng tôi. Bởi phép Đức Chúa Thánh Thần mà Người xuống thai sinh bởi Bà Ma-ri-a Đồng trinh, chịu nạn đời quan Phong-xi-ô Phi-la-tô, chịu đóng đinh trên cây Thánh giá, chết và táng xác, xuống ngục tổ tông. Ngày thứ ba bởi trong kẻ chết mà sống lại, lên trời, ngự bên hữu Đức Chúa Cha phép tắc vô cùng, ngày sau bởi trời lại xuống phán xét kẻ sống và kẻ chết. Tôi tin kính Đức Chúa Thánh Thần. Tôi tin có Hội Thánh hằng có ở khắp thế này, các Thánh thông công. Tôi tin phép tha tội. Tôi tin xác loài người ngày sau sống lại. Tôi tin hằng sống vậy. A-men.
 
 ## 5. Kinh Cáo Mình
-Tôi thú nhận cùng Thiên Chúa toàn năng và cùng anh chị em. Tôi đã phạm tội nhiều trong tư tưởng, lời nói, việc làm và những điều thiếu sót: lỗi tại tôi, lỗi tại tôi, lỗi tại <br>tôi mọi đàng. Vì vậy tôi xin Đức Bà Ma-ri-a trọn đời đồng trinh, các thiên thần, các thánh và anh chị em khẩn cầu cho tôi trước tòa Thiên Chúa, Chúa chúng ta. A-men
+Tôi thú nhận cùng Thiên Chúa toàn năng và cùng anh chị em. Tôi đã phạm tội nhiều trong tư tưởng, lời nói, việc làm và những điều thiếu sót: lỗi tại tôi, lỗi tại tôi, lỗi tại tôi mọi đàng. Vì vậy tôi xin Đức Bà Ma-ri-a trọn đời đồng trinh, các thiên thần, các thánh và anh chị em khẩn cầu cho tôi trước tòa Thiên Chúa, Chúa chúng ta. A-men
 
 ## 6. Kinh Lạy Cha
 Lạy Cha chúng con ở trên trời, chúng con nguyện danh Cha cả sáng, nước Cha trị đến, ý Cha thể hiện dưới đất cũng như trên trời. Xin Cha cho chúng con hôm nay lương thực hàng ngày và tha nợ chúng con như chúng con cũng tha kẻ có nợ chúng con. Xin chớ để chúng con sa chước cám dỗ, nhưng cứu chúng con cho khỏi sự dữ. A-men.
@@ -37,9 +37,9 @@ Lạy Chúa, con trông cậy vững vàng, vì công nghiệp Đức Chu
 Lạy Chúa, con kính mến Chúa hết lòng hết sức, trên hết mọi sự, vì Chúa là Đấng trọn tốt trọn lành vô cùng. Lại vì Chúa thì con thương yêu người ta như mình con vậy. A-men.
 
 ## 11. Mười Điều Răn
-Đạo Đức Chúa Trời có Mười Điều răn:<br>
+Đạo Đức Chúa Trời có Mười Điều răn:
 
-Thứ nhất : Thờ phượng một Đức Chúa Trời và kính mến Người <br>trên hết mọi sự.
+Thứ nhất : Thờ phượng một Đức Chúa Trời và kính mến Người trên hết mọi sự.<br>
 Thứ hai : Chớ kêu tên Đức Chúa Trời vô cớ.<br>
 Thứ ba : Giữ ngày Chúa nhật.<br>
 Thứ bốn : Thảo kính cha mẹ.<br>
@@ -50,20 +50,20 @@ Thứ tám : Chớ làm chứng dối.<br>
 Thứ chín : Chớ muốn vợ chồng người.<br>
 Thứ mười : Chớ tham của người.<br>
 
-Mười Điều răn ấy tóm về hai điều này mà chớ: trước kính mến <br>một Đức Chúa Trời trên hết mọi sự, sau là yêu người như mình ta vậy. A-men.
+Mười Điều răn ấy tóm về hai điều này mà chớ: trước kính mến một Đức Chúa Trời trên hết mọi sự, sau là yêu người như mình ta vậy. A-men.
 
 ## 12. Sáu Điều Răn
-Hội Thánh có sáu điều răn:<br>
+Hội Thánh có sáu điều răn:
 
 Thứ nhất : Dâng lễ ngày Chúa nhật cùng các ngày lễ buộc<br>
-Thứ hai : Chớ làm việc xác ngày Chúa nhật cùng các ngày lễ <br>buộc,
+Thứ hai : Chớ làm việc xác ngày Chúa nhật cùng các ngày lễ buộc,<br>
 Thứ ba : Xưng tội trong một năm ít là một lần,<br>
 Thứ bốn : Chịu Mình Thánh Đức Chúa Giê-su trong mùa Phục sinh,<br>
 Thứ năm : Giữ chay những ngày Hội Thánh buộc,<br>
-Thứ sáu : Kiêng thịt ngày thứ sáu cùng các ngày khác Hội <br>Thánh dạy.
+Thứ sáu : Kiêng thịt ngày thứ sáu cùng các ngày khác Hội Thánh dạy.<br>
 
 ## 13. Cải Tội Bảy Mối
-Cải tội bảy mối có bảy đức:<br>
+Cải tội bảy mối có bảy đức:
 
 Thứ nhất : Khiêm nhường chớ kiêu ngạo.<br>
 Thứ hai : Rộng rãi chớ hà tiện.<br>
@@ -74,15 +74,15 @@ Thứ sáu : Yêu người chớ ghen ghét.<br>
 Thứ bảy : Siêng năng việc Đức Chúa Trời chớ làm biếng.<br>
 
 ## 14. Phúc Thật 8 Mối
-Phúc thật tám mối:<br>
-Thứ nhất : Ai có lòng khó khăn, ấy là phúc thật, vì chưng <br>Nước Đức Chúa Trời là của mình vậy.
-Thứ hai : Ai hiền lành, ấy là phúc thật, vì chưng sẽ được đất <br>Đức Chúa Trời làm của mình vậy.
-Thứ ba : Ai khóc lóc, ấy là phúc thật, vì chưng sẽ được an ủi <br>vậy.
-Thứ bốn : Ai khao khát nhân đức trọn lành, ấy là phúc thật, <br>vì chưng sẽ được no đủ vậy.
-Thứ năm : Ai thương xót người, ấy là phúc thật, vì chưng mình <br>sẽ được thương xót vậy.
-Thứ sáu : Ai giữ lòng sạch sẽ, ấy là phúc thật, vì chưng sẽ <br>được thấy mặt Đức Chúa Trời vậy.
-Thứ bảy : Ai làm cho người hòa thuận, ấy là phúc thật, vì <br>chưng sẽ được gọi là con Đức Chúa Trời vậy.
-Thứ tám : Ai chịu khốn nạn vì đạo ngay, ấy là phúc thật, vì <br>chưng Nước Đức Chúa Trời là của mình vậy.
+Phúc thật tám mối:
+Thứ nhất : Ai có lòng khó khăn, ấy là phúc thật, vì chưng Nước Đức Chúa Trời là của mình vậy.<br>
+Thứ hai : Ai hiền lành, ấy là phúc thật, vì chưng sẽ được đất Đức Chúa Trời làm của mình vậy.<br>
+Thứ ba : Ai khóc lóc, ấy là phúc thật, vì chưng sẽ được an ủi vậy.<br>
+Thứ bốn : Ai khao khát nhân đức trọn lành, ấy là phúc thật, vì chưng sẽ được no đủ vậy.<br>
+Thứ năm : Ai thương xót người, ấy là phúc thật, vì chưng mình sẽ được thương xót vậy.<br>
+Thứ sáu : Ai giữ lòng sạch sẽ, ấy là phúc thật, vì chưng sẽ được thấy mặt Đức Chúa Trời vậy.<br>
+Thứ bảy : Ai làm cho người hòa thuận, ấy là phúc thật, vì chưng sẽ được gọi là con Đức Chúa <br>Trời vậy.
+Thứ tám : Ai chịu khốn nạn vì đạo ngay, ấy là phúc thật, vì chưng Nước Đức Chúa Trời là của <br>mình vậy.
 
 ## 15. Kinh Cám Ơn
 Con cám ơn Đức Chúa Trời là Chúa lòng lành vô cùng, chẳng bỏ con, chẳng để con không đời đời, mà lại sinh ra con, cho con được làm người, cùng hằng gìn giữ con, hằng che chở con; lại cho Ngôi Hai xuống thế làm người, chuộc tội chịu chết trên cây Thánh giá vì con, lại cho con được đạo thánh Đức Chúa Trời, cùng chịu nhiều ơn nhiều phép Hội Thánh nữa, và đã cho phần xác con ngày hôm nay (đêm nay) được mọi sự lành; lại cứu lấy con kẻo phải chết tươi ăn năn tội chẳng kịp.
@@ -106,41 +106,41 @@ Thương người có mười bốn mối
 
 Thương xác bảy mối:<br>
 
-Thứ nhất, cho kẻ đói ăn.
-Thứ hai, cho kẻ khát uống.
-Thứ ba, cho kẻ rách rưới ăn mặc.
-Thứ bốn, viếng kẻ liệt cùng kẻ tù rạc.
-Thứ năm, cho khách đỗ nhà.
-Thứ sáu, chuộc kẻ làm tôi.
-Thứ bảy, chôn xác kẻ chết.
+Thứ nhất, cho kẻ đói ăn.<br>
+Thứ hai, cho kẻ khát uống.<br>
+Thứ ba, cho kẻ rách rưới ăn mặc.<br>
+Thứ bốn, viếng kẻ liệt cùng kẻ tù rạc.<br>
+Thứ năm, cho khách đỗ nhà.<br>
+Thứ sáu, chuộc kẻ làm tôi.<br>
+Thứ bảy, chôn xác kẻ chết.<br>
 
 Thương linh hồn bảy mối:<br>
 
-Thứ nhất, lấy lời lành mà khuyên người.
-Thứ hai, mở dậy kẻ mê muội.
-Thứ ba, yên ủi kẻ âu lo.
-Thứ bốn, răn bảo kẻ có tội.
-Thứ năm, tha kẻ dể ta.
-Thứ sáu, nhịn kẻ mất lòng ta.
-Thứ bảy, cầu cho kẻ sống và kẻ chết.
+Thứ nhất, lấy lời lành mà khuyên người.<br>
+Thứ hai, mở dậy kẻ mê muội.<br>
+Thứ ba, yên ủi kẻ âu lo.<br>
+Thứ bốn, răn bảo kẻ có tội.<br>
+Thứ năm, tha kẻ dể ta.<br>
+Thứ sáu, nhịn kẻ mất lòng ta.<br>
+Thứ bảy, cầu cho kẻ sống và kẻ chết.<br>
 
-## 18. Ngắm Phép Lần Hạt: Năm Sự Vui<br>
-Thứ nhất thì ngắm : Thiên Thần truyền tin cho Đức Bà chịu thai. <br>Ta hãy xin cho được ở khiêm nhường.
-Thứ hai thì ngắm : Đức Bà đi viếng bà Thánh I-sa-ve. Ta hãy xin <br>cho được lòng yêu người.
-Thứ ba thì ngắm : Đức Bà sinh Đức Chúa Giê-su nơi hang đá. Ta <br>hãy xin cho được lòng khó khăn.
-Thứ bốn thì ngắm : Đức Bà dâng Đức Chúa Giê-su trong Đền <br>thánh. Ta hãy xin cho được vâng lời chịu lụy.
-Thứ năm thì ngắm : Đức Bà tìm được Đức Chúa Giê-su trong Đền <br>thánh. Ta hãy xin cho được giữ nghĩa cùng Chúa luôn.
+## 18. Ngắm Phép Lần Hạt: Năm Sự Vui
+Thứ nhất thì ngắm : Thiên Thần truyền tin cho Đức Bà chịu thai. Ta hãy xin cho được ở khiêm nhường.<br>
+Thứ hai thì ngắm : Đức Bà đi viếng bà Thánh I-sa-ve. Ta hãy xin cho được lòng yêu người.<br>
+Thứ ba thì ngắm : Đức Bà sinh Đức Chúa Giê-su nơi hang đá. Ta hãy xin cho được lòng khó khăn.<br>
+Thứ bốn thì ngắm : Đức Bà dâng Đức Chúa Giê-su trong Đền thánh. Ta hãy xin cho được vâng lời chịu lụy.<br>
+Thứ năm thì ngắm : Đức Bà tìm được Đức Chúa Giê-su trong Đền thánh. Ta hãy xin cho được giữ nghĩa cùng Chúa luôn.<br>
 
-## 19. Ngắm Phép Lần Hạt: Năm Sự Thương<br>
-Thứ nhất thì ngắm : Đức Chúa Giê-su lo buồn đổ mồ hôi máu. Ta <br>hãy xin cho được ăn năn tội nên.
-Thứ hai thì ngắm : Đức Chúa Giê-su chịu đánh đòn. Ta hãy xin <br>cho được hãm mình chịu khó bằng lòng.
-Thứ ba thì ngắm : Đức Chúa Giê-su chịu đội mão gai. Ta hãy xin <br>cho được chịu mọi sự sỉ nhục bằng lòng.
-Thứ bốn thì ngắm : Đức Chúa Giê-su vác cây thánh giá. Ta hãy <br>xin cho được vác thánh giá theo chân Chúa.
-Thứ năm thì ngắm : Đức Chúa Giê-su chịu chết trên cây thánh <br>giá. Ta hãy xin đóng đinh tính xác thịt vào thánh giá Chúa.
+## 19. Ngắm Phép Lần Hạt: Năm Sự Thương
+Thứ nhất thì ngắm : Đức Chúa Giê-su lo buồn đổ mồ hôi máu. Ta hãy xin cho được ăn năn tội nên.<br>
+Thứ hai thì ngắm : Đức Chúa Giê-su chịu đánh đòn. Ta hãy xin cho được hãm mình chịu khó bằng lòng.<br>
+Thứ ba thì ngắm : Đức Chúa Giê-su chịu đội mão gai. Ta hãy xin cho được chịu mọi sự sỉ nhục bằng lòng.<br>
+Thứ bốn thì ngắm : Đức Chúa Giê-su vác cây thánh giá. Ta hãy xin cho được vác thánh giá theo chân Chúa.<br>
+Thứ năm thì ngắm : Đức Chúa Giê-su chịu chết trên cây thánh giá. Ta hãy xin đóng đinh tính xác thịt vào thánh giá Chúa.<br>
 
-## 20. Ngắm Phép Lần Hạt: Năm Sự Mừng<br>
-Thứ nhất thì ngắm : Đức Chúa Giê-su sống lại. Ta hãy xin cho <br>được sống lại thật về phần linh hồn.
-Thứ hai thì ngắm : Đức Chúa Giê-su lên trời. Ta hãy xin cho được <br>ái mộ những sự trên trời.
-Thứ ba thì ngắm : Đức Chúa Thánh Thần hiện xuống. Ta hãy xin <br>cho được đầy dẫy mọi ơn Đức Chúa Thánh Thần.
-Thứ bốn thì ngắm : Đức Chúa Trời cho Đức Mẹ lên trời. Ta hãy <br>xin ơn chết lành trong tay Đức Mẹ.
-Thứ năm thì ngắm : Đức Chúa Trời thưởng Đức Mẹ trên trời. Ta <br>hãy xin Đức Mẹ phù hộ cho ta được thưởng cùng Đức Mẹ trên Nước Thiên đàng.
+## 20. Ngắm Phép Lần Hạt: Năm Sự Mừng
+Thứ nhất thì ngắm : Đức Chúa Giê-su sống lại. Ta hãy xin cho được sống lại thật về phần linh hồn.<br>
+Thứ hai thì ngắm : Đức Chúa Giê-su lên trời. Ta hãy xin cho được ái mộ những sự trên trời.<br>
+Thứ ba thì ngắm : Đức Chúa Thánh Thần hiện xuống. Ta hãy xin cho được đầy dẫy mọi ơn Đức Chúa Thánh Thần.<br>
+Thứ bốn thì ngắm : Đức Chúa Trời cho Đức Mẹ lên trời. Ta hãy xin ơn chết lành trong tay Đức Mẹ.<br>
+Thứ năm thì ngắm : Đức Chúa Trời thưởng Đức Mẹ trên trời. Ta hãy xin Đức Mẹ phù hộ cho ta được thưởng cùng Đức Mẹ trên Nước Thiên đàng.<br>
